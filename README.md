@@ -15,3 +15,7 @@ https://youtu.be/Zr82QKYKe34
 
 https://youtu.be/N_g5rO3yj-U
 
+Here is another youtube link with the addition of traffic light color classification taken from my camera:
+
+https://youtu.be/_zHLwtBiv00
+
